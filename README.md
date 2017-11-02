@@ -1,0 +1,3 @@
+# Iciltek-Using-Biometric-Company-Pakistan
+Pakistan Biometric Company
+ICILtek aims at providing services to the SME’s who cannot afford big brands. We treat every project as a unique project and do not generalize them. In this model clients stands to gain great benefits at lower cost. Its ERP is a proprietary solution whose sole ownership of the source code is ICILtek’s. We offer a wide variety of services; match your business needs to our capabilities. Our management includes people who have foreign qualification and experience and thus are aware of global standards We interpret and add value to your ideas!
